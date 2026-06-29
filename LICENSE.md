@@ -1,4 +1,4 @@
-# 
+# Exclusif PDF-XChange Editor extensions pour Mac OS | Natif PDF-XChange Editor extensions pour PC Windows. Avec catégorisation des dépenses et workflows personnalisés — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
